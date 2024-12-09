@@ -14,11 +14,4 @@
 
 请各位擦亮眼睛，在拥抱精彩的开源协作的同时，识别这种人的不良行为，保护好自己，避免自己的权益再次受到这样的侵害。谢谢大家！
 
-Github: https://github.com/myronchain
-
-微信：myronzhangweb3
-
-![IMG_0984](https://github.com/user-attachments/assets/d174233c-59a7-4fd6-9174-3acfb6186a59)
-
-![processed-49E62D68-E844-4B70-884A-ED55A09A388A](https://github.com/user-attachments/assets/1e916c98-f224-426c-949d-3a0d437dbe8b)
 
